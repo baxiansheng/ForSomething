@@ -1,1 +1,0 @@
-## for my summary of study
